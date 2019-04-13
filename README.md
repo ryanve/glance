@@ -2,7 +2,7 @@
 
 > `2019-04-13` Rearrange your room.
 
-> `2019-04-12` Don't let the pigs pull you down into the mud today.
+> `2019-04-12` Don't let pigs pull you down into the mud today.
 
 > `2019-04-11` Trust your instincts.
 
