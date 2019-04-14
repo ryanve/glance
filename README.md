@@ -1,5 +1,7 @@
 # [glance](https://github.com/ryanve/glance)
 
+> `2019-04-14` Procrastination is your mortal enemy today.
+
 > `2019-04-13` Rearrange your room.
 
 > `2019-04-12` Don't let pigs pull you down into the mud today.
