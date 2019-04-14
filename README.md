@@ -1,4 +1,9 @@
-# [glance](https://github.com/ryanve/glance)
+# glance
+
+- [my costar chart](https://www.costarastrology.com/ryanve)
+- [where i edit this](https://github.com/ryanve/glance)
+
+## glances to me from [costar](https://www.costarastrology.com)
 
 > `2019-04-14` Procrastination is your mortal enemy today.
 
