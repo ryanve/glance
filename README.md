@@ -5,6 +5,16 @@
 
 ## glances to me from [costar](https://www.costarastrology.com)
 
+> `2019-04-19` 
+
+> `2019-04-18` Sometimes you talk so fast you miss the holes in your own argument.
+
+> `2019-04-17` 
+
+> `2019-04-16` Run every questionable motive by a friend before you act today.
+
+> `2019-04-15` Embrace the possibility of abundant joy.
+
 > `2019-04-14` Procrastination is your mortal enemy today.
 
 > `2019-04-13` Rearrange your room.
