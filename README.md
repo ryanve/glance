@@ -5,6 +5,8 @@
 
 ## glances to me from [costar](https://www.costarastrology.com)
 
+> `2019-05-22` Find a way to laugh at yourself.
+
 > `2019-05-21` Do your best, fuck the rest.
 
 > `2019-05-20` The decibel at which a person harshly critiques you reveals the decibel at which they harshly critique themself.
